@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Julie Andrews
 - Raindrops on roses
-- Whiskers on horses
+- Whiskers on animals
 - Bright copper kettles
 - Warm woolen mittens
 - Brown paper packages
